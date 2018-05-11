@@ -1,2 +1,2 @@
-# aarthiv2k.github.io
+# aarthiv2k
 FIRST TRIAL
